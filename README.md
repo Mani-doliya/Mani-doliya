@@ -1,0 +1,6 @@
+- 👋 Hi, I’m Maniish Doliya
+- 👀 I’m interested in AI Developer
+- 🌱 I’m currently learning AI Universe
+- 💞️ I’m looking to collaborate on AI World
+- 📫 How to reach me Email - business.manidoliya@gmail.com
+- 😄 Pronouns: He / Him
